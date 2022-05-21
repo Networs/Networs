@@ -1,1 +1,1 @@
-## Hi everyne
+## Hi everyone
